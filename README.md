@@ -1,0 +1,1 @@
+# 2026-Autumn-Aberdeen-6-Seeking
